@@ -1,0 +1,1 @@
+The Glass & Crystal Museum is a digital archive dedicated exclusively to the handmade glass preserved in the museum collection of the Pervomaisky Glass Factory. The collection presents artistic glass created by master craftsmen, documenting the factory's distinctive design tradition, technical excellence and contribution to the history of decorative glassmaking.
